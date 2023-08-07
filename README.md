@@ -1,2 +1,0 @@
-# Qriio
-Privacy Policy
